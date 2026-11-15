@@ -1,0 +1,1 @@
+# ternyatabegini.media
